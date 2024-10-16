@@ -16,8 +16,8 @@ here](https://pbs.twimg.com/media/F85guPvbIAA1WNk.jpg
 
 ## Where to Play the Aviator Game
 
-Before you can download the **Aviator game**, it's essential to choose a
-reliable online casino that offers the game. Here are some popular
+Before you can download the **Aviator game**, choosing a
+reliable online casino that offers the game is essential. Here are some popular
 casinos where you can play the **Aviator game**:
 
 ### 1. **Cannonbet**
