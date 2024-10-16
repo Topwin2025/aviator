@@ -8,9 +8,9 @@ right place. This guide will cover everything from where to play the
 game, how to download it, and even some tips and tricks to enhance your
 gaming experience.
 
-![Click
-here(https://pbs.twimg.com/media/F85guPvbIAA1WNk.jpg
-)[https://cannonbet.com/Play/Real/Aviator-Spribe-casino]]
+[![Click
+here](https://pbs.twimg.com/media/F85guPvbIAA1WNk.jpg
+)](https://cannonbet.com/Play/Real/Aviator-Spribe-casino)
 
 
 
